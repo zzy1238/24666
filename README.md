@@ -37,4 +37,4 @@
 4. 总结：享受合法、安全的AV观看体验
 在享受日本AV视频时，合法性和安全性是最重要的考虑因素。我们强烈建议用户选择经过认证的合法平台，这不仅能避免版权纠纷，还能保证您的观看环境干净、安全。通过选择合法平台、安装防病毒软件、谨慎筛选影片，您可以在享受丰富多样的视频内容的同时，保护好自己的设备和隐私。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/zzy1238/24666 ）</span>
